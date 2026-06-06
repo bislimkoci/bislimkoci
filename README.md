@@ -90,7 +90,7 @@ I'm always interested in learning from others and exploring opportunities relate
 
 ## 📫 Connect With Me
 
-* LinkedIn: <a href="www.linkedin.com/in/bislim-koci-372979284">Bislim Koci</a>
+* 💼 [LinkedIn](https://www.linkedin.com/in/bislim-koci-372979284/)
 
 
 Feel free to explore my repositories and follow my journey!
